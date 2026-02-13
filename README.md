@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @NitinTheCoder
 - 👀 I’m interested in games
-- 🌱 I’m currently learning at 9th
+- 🌱 I’m currently learning at collage
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
